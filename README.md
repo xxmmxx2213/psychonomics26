@@ -1,1 +1,1 @@
-# poster
+# psychonomics 2026
